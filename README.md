@@ -34,6 +34,6 @@ Thank you for reviewing my submission!
 
 For any inquiries or feedback regarding this project, please contact:
 
-Ramya-pro(linkedin)
+Ramya-pro(github)
 
 galimuttiramyasri@gmail.com (gmail).
